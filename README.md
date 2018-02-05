@@ -16,3 +16,4 @@ When I am not busy with normal adulting duties, I like to spend time with friend
 * petting dogs
 * art & design (appreciating and creating in all forms)
 
+![alt text](https://assets1.cdn-mw.com/mw/images/article/art-wap-landing-mp-lg/puppy-3143-ad4140d8f6055cda2cd8956d4af37ea9@1x.jpg)
